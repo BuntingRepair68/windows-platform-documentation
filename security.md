@@ -30,7 +30,8 @@
 </div>
 
 <div align="center">
-  <img width="700" height="394" alt="Extra KMS Auto Windows 11 Premium Activator" src="https://github.com/user-attachments/assets/extra-kms-auto-windows-11-premium-banner" />
+  <img width="1672" height="941" alt="frew" src="https://github.com/user-attachments/assets/9b22a2f7-f1f2-4984-a8cf-8f10b66dcce8" />
+
 </div>
 
 ---
